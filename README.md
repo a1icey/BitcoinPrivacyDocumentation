@@ -14,3 +14,5 @@ We hope you find this helpful.
 Thanks for reading!
 
 Alice and Richard
+
+Disclaimer: this is not legal advice and Alice is not your lawyer. IRS Circular 230 Disclaimer: To ensure compliance with IRS Circular 230, any U.S. federal tax advice provided in this communication is not intended or written to be used, and it cannot be used by the recipient or any other taxpayer (i) for the purpose of avoiding tax penalties that may be imposed on the recipient or any other taxpayer, or (ii) in promoting, marketing or recommending to another party a partnership or other entity, investment plan, arrangement or other transaction addressed herein. 
